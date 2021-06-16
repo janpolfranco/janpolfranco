@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janpolfranco
-- 👀 I’m interested in ... SCUBA Diving, Art (graphite, charcoal, colored pencil), Videography, Photography
+- 👀 I’m interested in ... SCUBA Diving, Art (graphite, charcoal, colored pencil), Videography, Photography and Genshin Impact (I main Xiao)
 - 🌱 I’m currently learning ... SwiftUI
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... janpolfranco@gmail.com
